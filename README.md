@@ -1,8 +1,8 @@
 ![](https://biscuit.crd.co/assets/images/gallery02/48e64a33.gif?v=532faf5f)  `:: ponytown thing ︎︎ ︎︎ ︎︎ `
 
-***busy(⛔)*** probably semi-afk, ***w2i*** is recommended.
+***busy (⛔)*** probably semi-afk, ***w2i*** is recommended.
 
-***away (🌙)*** probably c+h! ! I appreciate you if you do :-] I might not respond though, even with whispers!
+***away (🌙)*** free c+h! ! I appreciate you if you do :-] I might not respond though, even with whispers!
 
 
 
